@@ -1,0 +1,1 @@
+The video "Reporter" by XBio Media is avaible on https://vimeo.com/343680002 for download under the Attribution-NonCommercial 3.0 Unported (CC BY-NC 3.0) https://creativecommons.org/licenses/by-nc/3.0/
